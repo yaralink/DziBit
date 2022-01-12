@@ -1,3 +1,2 @@
-# Dzibit Store
-#    We sell Ancient Beads for Cryptocurrency 
-BTC / ETH / XRP / TON / XLM
+# DZIBIT TRUST
+# Trusted Group of P2P Decentralized Services
